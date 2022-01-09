@@ -17,7 +17,7 @@ query Posts {
         date (format: "YYYY")
         title
         categories
-        thumbnail ()
+        thumbnail
         path
       }
     }
