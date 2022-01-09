@@ -1,6 +1,6 @@
 ---
 date: 2020-01-30
-title: Estacion Mak
+title: Estacion Maker
 author: Paul G.
 excerpt: Somos un equipo de apasionados por el aprendizaje integral. Nuestro potencial
   creativo es infinito. Ponemos nuestros talentos a tu servicio.
