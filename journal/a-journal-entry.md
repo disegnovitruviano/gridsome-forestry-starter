@@ -1,26 +1,26 @@
 ---
 date: 2019-05-17
-title: About Typography
-author: Nichlas W. Andersen
+title: Estacion Mak
+author: Paul G.
 excerpt: Font face, vertical rythm, readability, this long fake text should flow.
 
 ---
-
 ![](/uploads/markus-spiske-516263-unsplash.jpg)
 
-Still it was a handgun and nine rounds of ammunition, and as he made his way down Shiga from the Chinese program’s thrust, a worrying impression of solid fluidity, as though the shards of a [slick headless CMS](https://forestry.io) bent and elongated as they rotated, but it never told the correct time.
+_"Solo se ve bien con el corazón, lo esencial es invisible a los ojos". Antoine de Saint-Exupéry._
 
-## William Gibson
+## Estacion Maker
 
-Why bother with the movement of the train, their high heels like polished hooves against the gray metal of the Sprawl’s towers and ragged Fuller domes, dim figures moving toward him in the dark. Light from a service hatch at the rear wall dulling the roar of the deck sting his palm as he made his way down Shiga from the sushi stall he cradled it in his capsule in some coffin hotel, his hands clawed into the shadow of the console. She peered at the clinic, Molly took him to the simple Chinese hollow points Shin had sold him. None of that prepared him for the arena, the crowd, the tense hush, the towering puppets of light from a half-open service hatch framed a heap of discarded fiber optics and the drifting shoals of waste.
+Somos un equipo de apasionados por el aprendizaje integral. Nuestro potencial creativo es infinito. Es lo que nos hace humanos.
 
-### Still it was a square of faint light
+## Mirar con una mente y corazón abiertos
 
-The alarm still oscillated, louder here, the rear of the deck sting his palm as he made his way down Shiga from the sushi stall he cradled it in his jacket pocket. He’d waited in the shade beneath a bridge or overpass. The two surviving Founders of Zion were old men, old with the movement of the train, their high heels like polished hooves against the gray metal of the room where Case waited.
+Nuestro enfoque esta orientado en el aprendizaje integral, aquel que reconoce lo humano desde un equilibrio armonico entre lo racional, lo emocional y lo corporal.
 
-Still it was a square of faint light. Why bother with the movement of the train, their high heels like polished hooves against the gray metal of the console in faded pinks and yellows. The alarm still oscillated, louder here, the rear of the Villa bespeak a turning in, a denial of the bright void beyond the hull. Then a mist closed over the black water and the dripping chassis of a heroin factory. She put his pistol down, picked up her fletcher, dialed the barrel over to single shot, and very carefully put a toxin dart through the center of a broken mirror bent and elongated as they fell.
+### Nuestro compromiso
 
+Contribuir a liberar nuestras capacidades innatas. En cada uno de nosotros hay una voz latente esperando que nos atrevamos a mostrarla y ser en el mundo.
 
-#### Images formed and reformed
+### Nuestra mision
 
-A flickering montage of the Sprawl’s towers and ragged Fuller domes, dim figures moving toward him in the tunnel’s ceiling.
+Descubrir y cultivar talento humano a traves de la indagación creativa y la investigación aplicada.
