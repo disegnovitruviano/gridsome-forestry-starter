@@ -1,8 +1,9 @@
 ---
-date: 2019-05-17
+date: 2020-01-30
 title: Estacion Mak
 author: Paul G.
-excerpt: Font face, vertical rythm, readability, this long fake text should flow.
+excerpt: Somos un equipo de apasionados por el aprendizaje integral. Nuestro potencial
+  creativo es infinito. Ponemos nuestros talentos a tu servicio.
 
 ---
 ![](/uploads/markus-spiske-516263-unsplash.jpg)
